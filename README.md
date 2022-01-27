@@ -11,6 +11,7 @@
 ### LOSE in order to GAIN, <br/>
 ### Because most of Life's greatest Lessons are Learned through Pain. ❞ </i>
 
+<br/>
 
 <table align="center">
   <tbody>
