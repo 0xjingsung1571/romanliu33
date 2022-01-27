@@ -7,9 +7,9 @@
 <br/>
 
 ### <i> ❝ Sometimes you must HURT in order to KNOW, <br/>
-FALL in order to GROW, <br/>
-LOSE in order to GAIN, <br/>
-Because most of Life's greatest Lessons are Learned through Pain. ❞ </i>
+### FALL in order to GROW, <br/>
+### LOSE in order to GAIN, <br/>
+### Because most of Life's greatest Lessons are Learned through Pain. ❞ </i>
 
 
 <table align="center">
