@@ -141,7 +141,7 @@ Contact Romando for any kind of jobs.
 *       Email :       romando.liu0303@outlook.com
         Skype :       live:.cid.758ecc51ba0c8564
         Telegram :    @romanliu0303                (  https://t.me/romanliu0303 )
-        Discord :     
+        Discord :     blockchaindev0105#0611
        
 Cheers!
 
