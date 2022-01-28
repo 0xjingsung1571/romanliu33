@@ -138,10 +138,11 @@ Romando has a good understanding of cultures in various countries/regions, and h
 
 Romando is open to new job opportunity.
 Contact Romando for any kind of jobs.
-*       Email :       romando.liu0303@outlook.com
-        Skype :       live:.cid.758ecc51ba0c8564
-        Telegram :    @romanliu0303                (  https://t.me/romanliu0303 )
-        Discord :     blockchaindev0105#0611
+*       Email :        romando.liu0303@outlook.com
+        Skype :        live:.cid.758ecc51ba0c8564
+        Telegram :     @romanliu33                (  https://t.me/romanliu33 )
+        Discord :      blockchaindev0105#0611
+        Phone number : +18478683169
        
 Cheers!
 
